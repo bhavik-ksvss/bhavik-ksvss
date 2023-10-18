@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **bhavik.ksvss@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/ixzT6](https://shorturl.at/ixzT6)
+- 📄 Know about my experiences [https://shorturl.at/ixzT6](https://shorturl.at/actJV))
 
 - ⚡ Fun fact **I think I am funny**
 
