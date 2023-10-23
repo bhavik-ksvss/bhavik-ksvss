@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **Generative-AI Projects**
 
-- 👨‍💻 All of my projects are available at [github.com/bhavik-ksvss](github.com/bhavik-ksvss)
+- 👨‍💻 All of my projects are available at [github.com/bhavik-ksvss](https://github.com/bhavik-ksvss)
 
 - 💬 Ask me about **Data,Philosophy and Interesting Anecdotes**
 
