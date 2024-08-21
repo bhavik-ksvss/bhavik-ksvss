@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Bhavik Kollipara</h1>
-<h3 align="center">Data Scientist @ IU | Machine Learning Engineer | Driving Data-Driven Solutions for Business Success</h3>
+<h3 align="center">Data Engineer | Machine Learning Engineer | Driving Data-Driven Solutions for Business Success</h3>
 
 - 🔭 I’m currently working on [Project-990](https://bradrfulton.com/research/projects/f-g-network/)
 
