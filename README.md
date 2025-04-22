@@ -9,13 +9,11 @@
 
 - 👨‍💻 All of my projects are available at [github.com/bhavik-ksvss](https://github.com/bhavik-ksvss)
 
-- 💬 Ask me about **Data,Philosophy and Interesting Anecdotes**
+- 💬 Ask me about **Data, Philosophy and Interesting Anecdotes**
 
 - 📫 How to reach me **bhavik.ksvss@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/ixzT6](https://shorturl.at/actJV))
-
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **Outside of work, I stay balanced with long walks, a love for cinema and music, and an interest in stock market trends that keeps me sharp and curious.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
