@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **bhavik.ksvss@gmail.com**
 
-- ⚡ Fun fact **Outside of work, I stay balanced with long walks, a love for cinema and music, and an interest in stock market trends that keeps me sharp and curious.**
+- ⚡ Fun fact **"I cook like I’m on MasterChef, walk like I’m solving world problems, watch movies like a film critic, vibe to music like a DJ, and follow the stock market like it’s a sport."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
